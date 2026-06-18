@@ -3,3 +3,8 @@
 
 KIRKLAND BROTHERS EXCEPT WERE MISSING SCOTLAND AND NORTHERN IRELAND 😂😂
 ireland here too
+
+
+<img width="774" height="565" alt="image" src="https://github.com/user-attachments/assets/9636ce39-e154-40bf-bc19-5c65bd48058c" />
+
+wales
